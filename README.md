@@ -12,7 +12,7 @@ Moved to different states
 
 Oh, and I'm afraid that's just the way the world works
 It ain't funny, it ain't pretty, it ain't sweet
-Oh, and I'm afraid that's just the way the world works
+Oh, and I'm afraid that's just the way the world works 
 But I think that it could work for you and me
 Just wait and see
 It's not the end of the story
