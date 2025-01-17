@@ -1,19 +1,44 @@
-# rgg.
-No nos conocimos por casualidad,
-Fue porque desde hacía mucho nuestro destino estaba decidido.
+Let me tell you a story about a boy and a girl
+It's kinda short, kinda boring, but the end is a whirl
+They were just sixteen when the people were mean
+So they didn't love themselves, and now they're gone
+Headstones on a lawn
 
-No quiero olvidarte completamente y sin dejar rastro,
-¿Puedo continuar creyendo que nos veremos algún día?
+And when I was younger, I knew a boy and a boy
+Best friends with each other, but always wished they were more
+'Cause they loved one another, but never discovered
+'Cause they were too afraid of what they'd say
+Moved to different states
 
-No nos conocimos por casualidad,
-Fue porque desde hacía mucho nuestro destino no iba a cambiar.
+Oh, and I'm afraid that's just the way the world works
+It ain't funny, it ain't pretty, it ain't sweet
+Oh, and I'm afraid that's just the way the world works
+But I think that it could work for you and me
+Just wait and see
+It's not the end of the story
 
-Desearía poder reír contigo de todo corazón,
-Aunque sea un sueño que nunca se volverá realidad.
+Now it's on to the sequel about me and my friend
+Both our parents were evil, so we both made a bet
+If we worked and we saved, we could both run away
+And we'd have a better life, and I was right
+I wonder if she's alright
 
-Puedo ver un mañana que nos pertenezca a ti y a mí,
-Y tú también lo ves, ¿verdad? Espero sea así.
-Quiero estar junto a ti también cuando estés triste
+Oh, and I'm afraid that's just the way the world works
+It ain't funny, it ain't pretty, it ain't sweet
+Oh, and I'm afraid that's just the way the world works
+But I think that it could work for you and me
+Just wait and see
+It's not the end of the story
+Okay
 
-No nos conocimos por casualidad,
-Fue porque desde hacía mucho vi nuestro destino en mis sueños
+And the movie's always runnin' in my head
+All the people, all the lovers, all my friends
+And I hope that they all get their happy end
+In the end
+
+Oh, and I'm afraid that's just the way the world works
+It ain't funny, it ain't pretty, it ain't sweet
+Oh, and I'm afraid that's just the way the world works
+But I think that it could work for you and me
+Just wait and see
+It's not the end of the story, hmm, hmm
