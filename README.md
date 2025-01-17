@@ -5,7 +5,7 @@ So they didn't love themselves, and now they're gone
 Headstones on a lawn
 
 And when I was younger, I knew a boy and a boy
-Best friends with each other, but always wished they were more
+Best friends with each other, but always wished they were more 
 'Cause they loved one another, but never discovered
 'Cause they were too afraid of what they'd say
 Moved to different states
